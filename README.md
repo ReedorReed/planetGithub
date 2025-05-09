@@ -1,2 +1,2 @@
 # planetGithub
-There are an estimated 100 billion planets in the Milky Way galaxy alone. And while that number may seem daunting, astronomers have been able to identify and classify many of these planets. Here’s a look at some interesting planet jokes based on those found in our universe.
+Yeah I'm hung like planet Pluto hard to see with the naked eye But if I crashed into Uranus I would stick it where the sun don't shine 'Cause I'm kind of like Han Solo always stroking my own wookie I'm the root of all that's evil yeah but you can call me cookie 
