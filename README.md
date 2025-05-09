@@ -1,1 +1,2 @@
 # planetGithub
+There are an estimated 100 billion planets in the Milky Way galaxy alone. And while that number may seem daunting, astronomers have been able to identify and classify many of these planets. Here’s a look at some interesting planet jokes based on those found in our universe.
